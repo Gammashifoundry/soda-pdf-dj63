@@ -1,4 +1,4 @@
-# 
+# advanced Wave para PC plugins é o melhor Wave para PC plugins com contabilidade e permissoes de usuario. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
